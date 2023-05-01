@@ -24,13 +24,13 @@ Some examples of coaching topics may include:
 
 Rather than prescribing answers or solutions, I will actively listen to you and reflect back what I hear to gain a deeper understanding of what matters most to you. I'll ask thought-provoking questions that help you gain new insights and perspectives on your situation. In addition, I'll help you become more aware of the choices available to you, empowering you to make informed decisions that align with your values and goals. I'll also motivate you to follow through on your own ideas and take action towards achieving your desired outcomes.
 
-<b> A few tips on how to prepare: </b>
-- Have a topic that you'd like us to focus on
-- Make sure that you will be in a comfortable place where you'll have privacy and will be free from distraction for the duration of the session
-- If you can, give yourself a 15 minute time buffer before and after the session so that you can get into the headspace to think about your goals and then to process after our session
-- Since we'll meet over the phone, you don't need to worry about screen fatigue or caring about what you look like
-- If you are a note taker, set yourself up to jot down what you like
-- I am still in training and might not get everything perfect! I appreciate your patience and generosity with me
+<b> Tips for preparing for our coaching session: </b>
+- Choose a topic that you would like us to focus on
+- Find a comfortable and private space free from distractions for the duration of our session
+- Allow yourself a 15-minute buffer before and after the session to get into the right mindset and to process our discussion
+- Since our session will be over the phone, you don't have to worry about screen fatigue or your appearance
+- If you like to take notes, have a notepad or device handy
+- Please keep in mind that I am still in training and may not get everything perfect. I appreciate your patience and understanding.
 
 #### Coaching versus mentoring versus therapy <a name="Coaching versus mentoring versus therapy"></a>
 <i> Often people ask about how coaching is different from therapy.</i> One of the key differences is that in coaching, we will be focused on the present and the future, rather than digging in to the past. Another key difference is that in coaching, you'll come with a specific topic and we'll focus on it rather than have a stream of consciousness discussion.
