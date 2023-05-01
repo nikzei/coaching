@@ -24,8 +24,6 @@ Some examples of coaching topics may include:
 
 Rather than prescribing answers or solutions, I will actively listen to you and reflect back what I hear to gain a deeper understanding of what matters most to you. I'll ask thought-provoking questions that help you gain new insights and perspectives on your situation. In addition, I'll help you become more aware of the choices available to you, empowering you to make informed decisions that align with your values and goals. I'll also motivate you to follow through on your own ideas and take action towards achieving your desired outcomes.
 
-Together, we'll define your next steps and create a plan that supports you in reaching your goals. Through our coaching sessions, you'll gain clarity, confidence, and a greater sense of purpose as you move towards creating the life you truly desire.
-
 <b> A few tips on how to prepare: </b>
 - Have a topic that you'd like us to focus on
 - Make sure that you will be in a comfortable place where you'll have privacy and will be free from distraction for the duration of the session
