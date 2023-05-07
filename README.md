@@ -5,7 +5,9 @@ After nearly two decades of providing client-centered legal services and coachin
 As part of my training and certification process, I have to complete hours of experience coaching clients. If you have a work or life issue that you'd like help thinking through, I'd love to help. I'm offering free 45-minute coaching sessions. <b>You can schedule a session with me [here](https://calendly.com/nikzei/coaching-session).</b>
 
 
-#### My journey to coaching 
+
+
+## My journey to coaching 
 
 I had my first experience with leadership coaching through the [Treasury Executive Institute (TEI)](https://home.tei.treasury.gov/) while I was working with [18F](https://www.18f.gov), a digital services consultancy housed within the federal government. At the time, I was transitioning away from being an individual contributor and towards managing teams. Having trained as a lawyer, I carried many skills that were helpful but also some that got in the way. I was used to working independently and sometimes this made me less inclined to rely on teammates. I was versed in navigating adversarial relationships but sometimes I found myself initially cautious about collaboration. I was accustomed to taking on the responsibility of being an expert but as my worked scaled up, I realized that it would be impossible for me to develop expertise in everything. As my responsibilities grew in leading others, I began working with a leadership coach from TEI, which offers free coaching services to leaders in government. The experience opended doors for me, expanding my ideas of what was possible for both me and the teams that I was leading. It also helped me learn that all of us are continually evolving and that its incredibly helpful to have support along the way. That was years ago. I have continued to work with coaches over the years to help me when I hit road blocks or when I need support with stepping outside of my comfort zone. In addition to training with Act Leadrship, I've received training in somatic coaching from the [Strozzi Institute](https://en.wikipedia.org/wiki/Strozzi_Institute). 
 
