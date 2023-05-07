@@ -33,12 +33,13 @@ Coaching sessions are confidential. When I hold a session with you, I will not s
 - If possible, allow yourself a 15-minute buffer before and after the session to get into the right mindset and to process our discussion
 - Since our session will be over the phone, you don't have to worry about screen fatigue or your appearance
 - If you like to take notes, have a notepad or device handy
+- Note that during our session, I might jump in. Please understand that if I do this, it's not that I don't want to listen to you but rather than I want to make sure we focus our time on the topic you came in with 
 - Please keep in mind that I am still in training and may not get everything perfect. I appreciate your patience and understanding.
 
 #### A note about coaching versus mentoring versus therapy 
 Often people ask about how coaching is different from therapy. One of the key differences is that in coaching, we will be focused on the present and the future, rather than digging in to the past. Another key difference is that in coaching, you'll come with a specific topic and we'll focus on it rather than have a stream of consciousness discussion.
 
-People also often ask about how coaching relationships is different from mentoring ones. Generally, a mentor is someone who has expertise and offers advice to someone with less experience. In contrast, coaches might not not have substantive expertise in the industry or area of their clients. The role of a coach is not to offer advice but instead to guide a client through a process of self-discovery and problem-solving to achieve their goals.
+People also often ask about how coaching relationships are different from mentoring ones. Generally, a mentor is someone who has expertise and offers advice to someone with less experience. In contrast, coaches might not not have substantive expertise in the industry or area of their clients. The role of a coach is not to offer advice but instead to guide a client through a process of self-discovery and problem-solving to achieve their goals.
 
 
 
