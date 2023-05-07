@@ -5,7 +5,9 @@ After nearly two decades of providing client-centered legal services and coachin
 As part of my training and certification process, I have to complete hours of experience coaching clients. If you have a work or life issue that you'd like help thinking through, I'd love to help. I'm offering free 45-minute coaching sessions. <b>You can schedule a session with me [here](https://calendly.com/nikzei/coaching-session).</b>
 
 
-## What to expect from a coaching session with me
+
+
+## What to expect
 
 I'll ask you to bring a topic to our session that is currently important and unresolved to you. This could be something personal or professional that you are struggling with or seeking to improve upon. By focusing our sessions around a specific topic, we'll work together to explore solutions, identify new perspectives, and develop actionable steps that move you towards your desired outcomes.
 
@@ -25,7 +27,7 @@ During our session, I won't be giving advice. Instead, I'll actively listen and 
 
 Coaching sessions are confidential. When I hold a session with you, I will not share what we discuss with others and I will not record or take detailed notes.
 
-### Tips for preparing for our coaching session:
+#### Tips for preparing for our coaching session:
 - Choose a topic that you would like us to focus on
 - Find a comfortable and private space free from distractions for the duration of our session
 - If possible, allow yourself a 15-minute buffer before and after the session to get into the right mindset and to process our discussion
@@ -33,7 +35,7 @@ Coaching sessions are confidential. When I hold a session with you, I will not s
 - If you like to take notes, have a notepad or device handy
 - Please keep in mind that I am still in training and may not get everything perfect. I appreciate your patience and understanding.
 
-### A note about coaching versus mentoring versus therapy 
+#### A note about coaching versus mentoring versus therapy 
 Often people ask about how coaching is different from therapy. One of the key differences is that in coaching, we will be focused on the present and the future, rather than digging in to the past. Another key difference is that in coaching, you'll come with a specific topic and we'll focus on it rather than have a stream of consciousness discussion.
 
 People also often ask about how coaching relationships is different from mentoring ones. Generally, a mentor is someone who has expertise and offers advice to someone with less experience. In contrast, coaches might not not have substantive expertise in the industry or area of their clients. The role of a coach is not to offer advice but instead to guide a client through a process of self-discovery and problem-solving to achieve their goals.
