@@ -23,7 +23,7 @@ Some examples of coaching topics may include:
 - Planning for retirement or navigating a career transition
 - Working towards a personal challenge or goal that is meaningful to you
 
-During our session, I won't be giving advice. Instead, I'll actively listen and reflect back what I hear to help you ground yourself in what matters most to you. I'll ask questions to help you gain insights and perspectives on your situation. My intention will be to help you become more aware of the choices available to you and to encourage you to make informed decisions that align with your values and goals. We will close out our session by identifying what actions you'd like take to move things forward.  
+During our session, I won't be giving advice. Instead, I'll actively listen and reflect back what I hear to help you ground yourself in what matters most to you. I'll ask questions to help you gain insights and perspectives on your situation. My intention will be to help you become more aware of the choices available to you and to encourage you to make informed decisions that align with your values and goals. We will close out our session by identifying what actions you'd like to take to move things forward.  
 
 Coaching sessions are confidential. When I hold a session with you, I will not share what we discuss with others and I will not record or take detailed notes.
 
